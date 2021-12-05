@@ -1,3 +1,3 @@
 <a href="https://ge.korea.ac.kr/ge/about/justice.do">자유정의진리2 AG분반 5조</a> 안암동 <strong>전자영수증 <u>도입</strong></u>
 <br>
-<img src="C:\Users\강해나\Desktop\2학기 수업 자료\html 코딩한 것\web\화면 캡처 2021-12-06 072635.png" width="900">
+<img src="https://imgur.com/189xlIq" width="900">
